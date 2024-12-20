@@ -13,7 +13,7 @@
 ### 1.DOVE加速器–高性价比且稳定的梯子
 ### [访问DOVE加速器官网](https://dove8.cc/a.php?alavBTtF8UB)
 
-DOVE加速器( 英文名称为 DOVE cloud ，也被称之为 DOVE机场)，是一款使用自主研发的加密协议的加速软件，使用中将全程[隐藏用户 IP 地址](https://lemontalking.info/archives/2123)，
+DOVE加速器( 英文名称为 DOVE cloud ，也被称之为 DOVE机场)，是一款使用自主研发的加密协议的加速软件，使用中将全程[隐藏用户 IP 地址](https://appletalking.cc/archives/2279)，
 帮用户完美实现匿名翻墙上网。无论你是工作用还是娱乐用，更无论你是看视频还是玩游戏，DOVE加速器的极致网速都可以让你得到完美体验。
 
 适用人群：需要翻墙科学上网、需要操作简单易用且长期免费试用的用户、需要游戏加速的用户、安卓和电脑用户（Windows、macOS、iOS、Android等设备都可以使用）
